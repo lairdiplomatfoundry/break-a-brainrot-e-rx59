@@ -1,4 +1,4 @@
-
+break a brainrot egg Scripts premium is the best break a brainrot egg Script, featuring undetectable and no cooldown. Safe and powerful for all your
 
 
 
